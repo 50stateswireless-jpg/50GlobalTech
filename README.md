@@ -1,2 +1,1 @@
-# 50GlobalTech
-Special offers available online
+# 50stateswirelessusa
