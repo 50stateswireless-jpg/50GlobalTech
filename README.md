@@ -1,2 +1,2 @@
 # 50GlobalTech
-Wireless for everyone
+Special offers available online
